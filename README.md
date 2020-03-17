@@ -27,6 +27,10 @@ https://www.youtube.com/watch?v=pYT6zgpHaQ8
 
 Parte 7 - Projeto 3.0
 
+https://www.youtube.com/watch?v=Bx_df74KhrE
+
 Parte 8 - Projeto 4.0
+
+https://www.youtube.com/watch?v=N40D3GMc8V8
 
 Parte 9 - Projeto 5.0
